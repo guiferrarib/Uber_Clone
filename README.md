@@ -6,6 +6,6 @@
 ![](https://media.giphy.com/media/qBeboj1HI1fQ07f5MX/giphy.gif)
 ![](https://media.giphy.com/media/WeFyp5JHs7wm01aZyG/giphy.gif)
 ![](https://media.giphy.com/media/bClySUYzGqeHQg2gUQ/giphy.gif)
-![](https://i.ibb.co/Vgfgr96/Sair-7.png)
+<img src="https://i.ibb.co/Vgfgr96/Sair-7.png" alt="Sair-7" width="250">
 ![](https://ibb.co/gSkSH9Y.png)
 

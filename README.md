@@ -6,6 +6,6 @@
 ![](https://media.giphy.com/media/qBeboj1HI1fQ07f5MX/giphy.gif)
 ![](https://media.giphy.com/media/WeFyp5JHs7wm01aZyG/giphy.gif)
 ![](https://media.giphy.com/media/bClySUYzGqeHQg2gUQ/giphy.gif)
-![](https://ibb.co/X3d6TwS)
-![](https://ibb.co/gSkSH9Y)
+![](https://ibb.co/X3d6TwS.png)
+![](https://ibb.co/gSkSH9Y.png)
 
